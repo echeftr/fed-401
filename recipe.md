@@ -1,4 +1,4 @@
-# ‘Cheesy’ Nacho Bowl
+# ‘Cheesy’ Nacho Bowl.
 
 ###INGREDIENTS
 
